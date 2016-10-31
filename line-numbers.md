@@ -1,11 +1,11 @@
 #### 1 Bianna and Brittany were here!
 #### 2 I love romeo santos 
 #### 3 Brittany was here 
-#### 4 
+#### 4 I'm a gemini 
 #### 5 some text 
-#### 6
+#### 6 My middle name is Nicole 
 #### 7 I like ice cream
-#### 8
+#### 8 
 
 #### 9 github is really awesome
 
